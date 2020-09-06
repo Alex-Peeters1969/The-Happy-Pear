@@ -10,4 +10,4 @@ Add the chopped scallions and peppers into the pan and cook for 2 minutes stirri
 
 Finely slice the second half of the red chilli. Garnish each serving with toasted sesame seeds, sliced chilli or finely sliced radish. 
 
-Season with salt and pepper to your taste. Enjoy!
+Season with salt and pepper to your taste. Enjoy!?????
